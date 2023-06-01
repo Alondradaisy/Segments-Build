@@ -32,6 +32,6 @@ Many of the routes I wrote down are things I currently practice and some that I 
 
 💡 
 
-Back in June, I introduced [Segments: Grow | Learn | Build | Play](https://medium.com/@daisydocuments/segments-grow-learn-build-play-7d62ecbdb4fd) as a vehicle to find more fulfillment in the way I engage and share deeper parts of myself through an intentional lens. It has now become a practice that I have enjoyed navigating and [documenting](https://medium.com/@daisydocuments/segments-documentation-f450e1471465) in the process. It's a structured method of sharing around growing, learning, building and playing to nourish neuroplasticity. 
+Back in 2022, I introduced [Segments: Grow | Learn | Build | Play](https://medium.com/@daisydocuments/segments-grow-learn-build-play-7d62ecbdb4fd) as a vehicle to find more fulfillment in the way I engage and share deeper parts of myself through an intentional lens. It has now become a practice that I have enjoyed navigating and [documenting](https://medium.com/@daisydocuments/segments-documentation-f450e1471465) in the process. It's a structured method of sharing around growing, learning, building and playing to nourish neuroplasticity. 
 
 _As an ongoing practice of learning and sharing to nourish neuroplasticity, I am very much open to listening and engaging with other trains of thought or mental structures. Cheers!_
